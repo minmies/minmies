@@ -1,4 +1,5 @@
-## Hi there 👋
+be my friend ok..
+https://www.youtube.com/watch?v=brEhzIOznMw
 
 <!--
 **minmies/minmies** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
